@@ -18,7 +18,7 @@
 	</span>
 	<span style="font-weight: bold;">
 		vn institute , 
-		kukatpally housing board,
+		kphb kukatpally,
 		hyderbad,
 		+91-9492005909,
 		vkk689@gmail.com
